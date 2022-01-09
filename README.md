@@ -1,2 +1,0 @@
-# SPEEDRUN
-lass lieber
